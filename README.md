@@ -1,0 +1,2 @@
+# MY-LIFE
+AUTOMATIC
